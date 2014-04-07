@@ -19,3 +19,10 @@ Here we are, **Hard** work you know! :)
 ![Food time] (https://fbcdn-sphotos-h-a.akamaihd.net/hphotos-ak-prn2/v/t34.0-12/10173448_10200995708574951_508356034_n.jpg?oh=6a7159c505e848c3f52144e7da61c712&oe=53444544&__gda__=1396986987_828d37784746bd7bd7d6baa3bf2fddfe)
 Me and Marko are eating some lunch for the first time as adults at theire work. ;] 
 
+##Best thing of today's prao
+
+* Learning about Github
+* Eating lunch 
+
+
+
