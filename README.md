@@ -24,6 +24,8 @@ Me and Marko are eating some lunch for the first time as adults at theire work. 
 * Learning about Github
 * Eating lunch 
 * Learning about terminal
+* Helping with stuff at Minc
+
 
 
 
